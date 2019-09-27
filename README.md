@@ -1,4 +1,4 @@
 # test
 This is a test repository
 
-[My Link](8xwn5ktguw24e0fn93ytxn3f5.canarytokens.com)
+[My Link](http://canarytokens.com/images/tags/terms/v04vflxeh05kctmhq5tu3pw5i/post.jsp)
